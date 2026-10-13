@@ -19,7 +19,7 @@ A dynamic icon collection featuring a wide range of sports activities and iconic
 
 ![alt text](Activeicons-pro.png)
 
-**💥 [Get Activeicons Pro ](https://idealandia.lemonsqueezy.com/buy/57a7582e-8563-4917-a944-0ce27f87142b)**
+**💥 [Get Activeicons Pro ](https://www.creem.io/payment/prod_lQzipnHlNFeaPUkqL22QH)**
 
 **🌈 Seven Styles for you to choose from**
 
